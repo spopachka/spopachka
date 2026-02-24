@@ -1,3 +1,3 @@
 <div align="center">
-<img src="photo_2026-02-09_17-03-12-Photoroom.png"> <br>
+<img src="photo_2026-02-24_00-03-05.jpg"> <br>
 </div>
